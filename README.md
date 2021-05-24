@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @RAGERGAMER265
+- 👀 I’m interested in nintendo
